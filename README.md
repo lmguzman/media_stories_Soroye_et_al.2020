@@ -40,48 +40,48 @@ Links to media coverage
  
 19. [Climate change could push bumblebees to extinction](https://www.theverge.com/2020/2/6/21126624/climate-change-bumble-bees-extinction) - The Verge
  
-20. Why bumble bees are going extinct in time of 'climate chaos' [Eureka Alert]
+20. [Why bumble bees are going extinct in time of 'climate chaos'](https://www.eurekalert.org/pub_releases/2020-02/uoo-wbb013120.php) - Eureka Alert
  
-21. Humans need bumble bees—and they are disappearing faster than we though [Popular Science]
+21. [Humans need bumble bees—and they are disappearing faster than we though](https://www.popsci.com/story/science/bumble-bees-climate-change-threat/) - Popular Science
  
-22. “Climate chaos” and bumble bee extinctions [Environmental Health News]
+22. [“Climate chaos” and bumble bee extinctions](https://www.ehn.org/bees-climate-change-2645035345.html) - Environmental Health News
  
-23. Bumble bee numbers tumble with climate change: study [France 24]
+23. [Bumble bee numbers tumble with climate change: study](https://www.france24.com/en/20200207-bumble-bee-numbers-tumble-with-climate-change-study) - France 24
  
-24. Bumble bee numbers tumble with climate change: study [RFI]
+24. [Bumble bee numbers tumble with climate change: study](http://www.rfi.fr/en/wires/20200207-bumble-bee-numbers-tumble-climate-change-study) - RFI
  
-25. Climate Change News: Bumble Bees Are Crucial To The Environment, Species On The Decline Due To Warmer Temperatures [International Business Times]
+25. [Climate Change News: Bumble Bees Are Crucial To The Environment, Species On The Decline Due To Warmer Temperatures](https://www.ibtimes.com/climate-change-news-bumble-bees-are-crucial-environment-species-decline-due-warmer-2922891) - International Business Times
  
-26. Why Bumble Bees Are Going Extinct in Time of “Climate Chaos” [uOttawa]
+26. [Why Bumble Bees Are Going Extinct in Time of “Climate Chaos”](https://media.uottawa.ca/news/why-bumble-bees-are-going-extinct-time-climate-chaos) - uOttawa
  
-27. Climate change is killing bumblebees around the world, new study finds [Mic]
+27. [Climate change is killing bumblebees around the world, new study finds](https://www.mic.com/p/climate-change-is-killing-bumblebees-around-the-world-new-study-finds-21784619) - Mic
  
-28. Buzz off climate change, heat threatens bees [WUSA9]
+28. [Buzz off climate change, heat threatens bees](https://www.wusa9.com/article/weather/weather-blog/bumblebees-are-in-danger-of-extinction-from-climate-change/65-691b76c2-a0cf-4113-b955-91f12a0e1e26) - WUSA9
  
-29. Climate change driving 'rapid and widespread' decline of bumblebees [Carbon Brief]
+29. [Climate change driving 'rapid and widespread' decline of bumblebees](https://www.carbonbrief.org/climate-change-driving-rapid-and-widespread-decline-of-bumblebees) - Carbon Brief
  
-30. Bumblebees Face Extinction From the Climate Crisis [EcoWatch]
+30. [Bumblebees Face Extinction From the Climate Crisis](https://www.ecowatch.com/bumblebees-extinction-climate-crisis-2645061912.html) - EcoWatch
  
-31. Climate change is causing bees around the world to disappear [New York Post]
+31. [Climate change is causing bees around the world to disappear](https://nypost.com/2020/02/10/climate-change-is-causing-bees-around-the-world-to-disappear/) - New York Post
  
-32. Bumblebees could go extinct in decade due to climate change [Daily Mail]
+32. [Bumblebees could go extinct in decade due to climate change](https://www.dailymail.co.uk/sciencetech/article-7974617/Bumblebees-extinct-decade-climate-change-scientists-warn.html) - Daily Mail
  
-33. Bumblebees are feeling the heat of climate change [Sustainability Times]
+33. [Bumblebees are feeling the heat of climate change](https://www.sustainability-times.com/environmental-protection/bumblebees-are-feeling-the-heat-of-climate-change/) - Sustainability Times
  
-34. Bees disappearing due to climate change [Canada’s National Observer]
+34. [Bees disappearing due to climate change](https://www.nationalobserver.com/2020/02/07/news/bees-disappearing-due-climate-change) - Canada’s National Observer
  
-35. Bumble Bees Are Going Extinct in Time of Climate Chaos – “We Have Now Entered the World's Sixth Mass Extinction Event” [Sci Tech Daily]
+35. [Bumble Bees Are Going Extinct in Time of Climate Chaos – “We Have Now Entered the World's Sixth Mass Extinction Event”](https://scitechdaily.com/bumble-bees-are-going-extinct-in-time-of-climate-chaos/) - Sci Tech Daily
  
-36. New Study Shows Bumblebee Populations Have Reduced by 30 Percent Due to Climate Change [One Green Planet]
+36. [New Study Shows Bumblebee Populations Have Reduced by 30 Percent Due to Climate Change](https://www.onegreenplanet.org/environment/new-study-shows-bumblebe-populations-have-reduced-by-30-percent-due-to-climate-change/) - One Green Planet
  
-37. Climate breakdown driving bumblebee collapse [Ecologist]
+37. [Climate breakdown driving bumblebee collapse](https://theecologist.org/2020/feb/07/climate-breakdown-driving-bumblebee-collapse) - Ecologist
  
-38. Bumblebee populations down nearly 50 percent thanks to climate change [Totally Vegan Buzz]
+38. [Bumblebee populations down nearly 50 percent thanks to climate change](https://www.totallyveganbuzz.com/news/bumblebee-populations-down-nearly-50-percent-thanks-to-climate-change/) - Totally Vegan Buzz
  
-39. The Rapid Decline of Bumble Bees Threatens US Agriculture [Triple Pundit]
+39. [The Rapid Decline of Bumble Bees Threatens US Agriculture](https://www.triplepundit.com/story/2020/rapid-decline-bumble-bees-threatens-us-agriculture/86561/) - Triple Pundit
  
-40. Hotter temperatures could lead to a "mass extinction" of bumblebees [Science Focus]
+40. [Hotter temperatures could lead to a "mass extinction" of bumblebees](https://www.sciencefocus.com/news/hotter-temperatures-could-lead-to-a-mass-extinction-of-bumblebees/) - Science Focus
  
-41. Why we should all care about the loss of bees [The Irish Times]
+41. [Why we should all care about the loss of bees](https://www.irishtimes.com/business/innovation/why-we-should-all-care-about-the-loss-of-bees-1.4184424) - The Irish Times
  
-42. Research shows climate change silencing spots once buzzing with bees [Winnipeg Free Press]
+42. [Research shows climate change silencing spots once buzzing with bees](https://www.winnipegfreepress.com/arts-and-life/life/greenpage/research-shows-climate-change-silencing-spots-once-buzzing-with-bees-567626052.html) - Winnipeg Free Press
