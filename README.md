@@ -4,15 +4,15 @@ Links to media coverage
 
 1. [Climate Change: It’s a Buzzkill for Bumblebees, Study Finds](https://www.nytimes.com/interactive/2020/02/06/climate/bumblebees-extreme-heat-weather.html) - The New York Times
  
-2. Bumblebees are going extinct in a time of 'climate chaos' [National Geographic]
+2. [Bumblebees are going extinct in a time of 'climate chaos'](https://www.nationalgeographic.com/animals/2020/02/bumblebees-going-extinct-climate-change-pesticides/) - National Geographic
  
-3. Bumblebees are going extinct because of climate crisis, but there are easy ways to help [CNN]
+3. [Bumblebees are going extinct because of climate crisis, but there are easy ways to help](https://www.cnn.com/2020/02/06/us/bumble-bee-climate-change-extinction-study-scn/index.html) - CNN
  
-4. Climate change: Loss of bumblebees driven by 'climate chaos' [BBC]
+4. [Climate change: Loss of bumblebees driven by 'climate chaos'](https://www.bbc.com/news/science-environment-51375600) - BBC
  
-5. Bumblebees Are Declining Because Of Climate Change [NPR]
+5. [Bumblebees Are Declining Because Of Climate Change](https://www.npr.org/2020/02/06/803130948/bumblebees-are-disappearing-because-of-extreme-heat) - NPR
  
-6. A nearly 50 percent decline in bumblebee habitat in North America is tied to climate change, scientists say [Washington Post]
+6. [A nearly 50 percent decline in bumblebee habitat in North America is tied to climate change, scientists say] (https://www.washingtonpost.com/climate-environment/2020/02/06/bumblebees-are-vanishing-scientists-blame-climate-change/) -  Washington Post
  
 7. Bumblebees' decline points to mass extinction – study [The Guardian]
  
