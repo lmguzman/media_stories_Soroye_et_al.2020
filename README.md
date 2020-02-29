@@ -2,7 +2,7 @@
 
 Links to media coverage
 
-1. Climate Change: It’s a Buzzkill for Bumblebees, Study Finds [The New York Times]
+1. [Climate Change: It’s a Buzzkill for Bumblebees, Study Finds](https://www.nytimes.com/interactive/2020/02/06/climate/bumblebees-extreme-heat-weather.html) - The New York Times
  
 2. Bumblebees are going extinct in a time of 'climate chaos' [National Geographic]
  
