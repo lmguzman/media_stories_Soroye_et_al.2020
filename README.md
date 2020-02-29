@@ -12,33 +12,33 @@ Links to media coverage
  
 5. [Bumblebees Are Declining Because Of Climate Change](https://www.npr.org/2020/02/06/803130948/bumblebees-are-disappearing-because-of-extreme-heat) - NPR
  
-6. [A nearly 50 percent decline in bumblebee habitat in North America is tied to climate change, scientists say] (https://www.washingtonpost.com/climate-environment/2020/02/06/bumblebees-are-vanishing-scientists-blame-climate-change/) -  Washington Post
+6. [A nearly 50 percent decline in bumblebee habitat in North America is tied to climate change, scientists say](https://www.washingtonpost.com/climate-environment/2020/02/06/bumblebees-are-vanishing-scientists-blame-climate-change/) -  Washington Post
  
-7. Bumblebees' decline points to mass extinction – study [The Guardian]
+7. [Bumblebees' decline points to mass extinction – study](https://www.theguardian.com/environment/2020/feb/06/bumblebees-decline-points-to-mass-extinction-study) - The Guardian
  
-8. Climate change is killing the bumblebees, study says [CBS News]
+8. [Climate change is killing the bumblebees, study says](https://www.cbsnews.com/news/climate-change-is-killing-the-bumble-bees-study-says/) - CBS News
  
-9. Bumblebees face mass extinction amid ‘climate chaos’, scientists warn [Independent]
+9. [Bumblebees face mass extinction amid ‘climate chaos’, scientists warn](https://www.independent.co.uk/environment/bumblebee-extinction-climate-change-biodiversity-europe-america-a9321836.html) - Independent
  
-10. Climate change: Bumblebees face extinction as population drops by 46% [USA Today]
+10. [Climate change: Bumblebees face extinction as population drops by 46%](https://www.usatoday.com/story/news/nation/2020/02/06/bumblebees-decline-due-climate-change/4679240002/) - USA Today
  
-11. Hotter heat waves are wiping out bumblebees, study finds [CBC News]
+11. [Hotter heat waves are wiping out bumblebees, study finds](https://www.cbc.ca/news/technology/bumble-bee-heat-waves-1.5453156) - CBC News
  
-12. Climate change could lead to extinction of bumblebees, Canadian research finds [ABC]
+12. [Climate change could lead to extinction of bumblebees, Canadian research finds](https://www.abc.net.au/news/2020-02-07/climate-change-fuelling-bumblebee-extinction-fears/11945352) - ABC
  
-13. Bumblebee Decline Linked With Extreme Heat Waves [Inside Climate News]
+13. [Bumblebee Decline Linked With Extreme Heat Waves](https://insideclimatenews.org/news/05022020/bumblebee-climate-change-heat-decline-migration) - Inside Climate News
  
-14. How Climate Change Is Killing Bumblebees [IFL Science]
+14. [How Climate Change Is Killing Bumblebees](https://www.iflscience.com/plants-and-animals/how-climate-change-is-killing-bumblebees/) - IFL Science
  
-15. Climate Change Has Driven Serious Declines in World’s Bumblebees [Smithsonian Magazine]
+15. [Climate Change Has Driven Serious Declines in World’s Bumblebees](https://www.smithsonianmag.com/smart-news/climate-change-has-driven-serious-declines-worlds-bumblebees-180974178/) - Smithsonian Magazine
  
-16. Rising temperatures linked to bumblebee decline suggest mass extinction [New Atlas]
+16. [Rising temperatures linked to bumblebee decline suggest mass extinction](https://newatlas.com/environment/rising-temperatures-bumblebee-decline-extinction-climate-change/) - New Atlas
  
-17. Climate Change Linked to Drop in Bumble Bee Numbers: Study [The Scientist]
+17. [Climate Change Linked to Drop in Bumble Bee Numbers: Study](https://www.the-scientist.com/news-opinion/climate-change-linked-to-drop-in-bumble-bee-numbers--study-67076) - The Scientist
  
-18. Letter: Bumble bee die out is caused in part by climate change [Mercury News]
+18. [Letter: Bumble bee die out is caused in part by climate change](https://www.mercurynews.com/2020/02/13/letter-bumble-bee-die-out-is-caused-in-part-by-climate-change/) - Mercury News
  
-19. Climate change could push bumblebees to extinction [The Verge]
+19. [Climate change could push bumblebees to extinction](https://www.theverge.com/2020/2/6/21126624/climate-change-bumble-bees-extinction) - The Verge
  
 20. Why bumble bees are going extinct in time of 'climate chaos' [Eureka Alert]
  
